@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows best Script: color-grading & motion-tracking is the best DaVinci Resolve for PC | DaVinci Resolve for Windows script,
 
 
 
